@@ -1,4 +1,6 @@
-## Hi there, wellcome to TYTO.code
+## Hi there, wellcome to TYTO.code!
+
+If you join us, you are called up to be creative, freedom and to get real solution to businesses around the world.<br>
 
 <!--
 
