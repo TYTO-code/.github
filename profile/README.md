@@ -1,20 +1,12 @@
 ## Hi there, wellcome to TYTO.code!
 
+If you're here, your skills and passion for creativity are perfectly aligned with our commitment to providing solutions that impact professionals and companies around the world.
 
-Your skills and passion for creativity align perfectly with our commitment to delivering real solutions that impact businesses globally.
+At TYTO.code, we believe in fostering an environment that encourages innovation, embraces freedom, and values the unique contributions of each team member. You will play a crucial role in our mission.
 
-At TYTO.code, we believe in fostering an environment that encourages innovation, embraces freedom, and values each team member's unique contributions. You will play a crucial part in our mission.
-
-We are confident that your expertise will not only enhance our team but also contribute to the success of the exciting projects we have in store. As a valued member of TYTO.code, you'll have the opportunity to collaborate with talented professionals, engage in cutting-edge projects, and continuously expand your skill set.
-
-Please find attached your formal offer letter, which includes details about your role, compensation, and other pertinent information. We kindly request you to review and sign the offer letter to officially accept the position.
-
-If you have any questions or require further clarification, feel free to reach out to tyto.code@gmail.com. Once again, congratulations on becoming a part of the TYTO family.
-
-We eagerly anticipate your contributions and look forward to embarking on this exciting journey together.
+We are confident that your experience will not only add value to our team, but also contribute to the success of the exciting projects we have in mind. As a valued member of TYTO.code, you will have the opportunity to collaborate with talented professionals, participate in cutting-edge projects, and continually expand your skill set.
 
 Welcome aboard!
-
 
 <!--
 
