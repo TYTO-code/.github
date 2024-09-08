@@ -1,4 +1,4 @@
-## Hi there, wellcome to TYTO.code!
+# Wellcome to TYTO.code!
 
 We're thrilled to have you here. Your skills and passion for creativity perfectly align with our mission to deliver impactful solutions to professionals and companies worldwide.
 
